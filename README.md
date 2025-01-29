@@ -1,7 +1,7 @@
 ```
 jay's profile ٩(ˊᗜˋ*)ﾉ 
 ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
-✦ retinova @ irvine hacks '25
+✦ retinova @ irvinehacks '25
 ✦ attention @ personal
 ✦ nutri @ webjam '24
 ✦ bibi @ personal
