@@ -3,7 +3,7 @@ jay's profile ٩(ˊᗜˋ*)ﾉ
 ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯
 ✦ resonance @ personal
 ✦ aecademy @ la hacks '25
-✦ retinova @ irvinehacks '25
+✦ retinova @ irvinehacks '25 ✧ 1st place
 ✦ nutri @ webjam '24
 ✦ bibi @ personal
 
